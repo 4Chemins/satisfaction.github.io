@@ -1,2 +1,2 @@
 # satisfaction.github.io
-avis google et remarqiues
+avis google et remarques
